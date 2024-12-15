@@ -1,0 +1,1 @@
+Obojetnie co?
