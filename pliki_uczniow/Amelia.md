@@ -1,0 +1,1 @@
+Tygrysy potrafią biegać z prędkością do 60 km/h, mimo ich wielkiego rozmiaru, ale tylko na krótkie dystanse.
